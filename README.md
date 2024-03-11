@@ -10,7 +10,7 @@
 
 -😄 Pronouns: He/Him
 
--⚡ Fun fact: I just happen to be a bookworm with a growing book collection.
+-⚡ Fun fact: Im a proud pet owner! My cricle of pet friends include, my dog Stitch, my turtles Rapheal and Leonardo and my hamster Teddy. They just keep things simple and real.    
 
 <!---
 Ayrh1/Ayrh1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
