@@ -1,4 +1,4 @@
--👋 Hello, I'm Alex, a Full Stack Web Developer (MERN0 with a passion for languages and healthy living.
+-👋 Hello, I'm Alex, a Full Stack Web Developer (MERN) with a passion for languages and healthy living.
 
 -👀 I’m interested in web development, language learning (Mandarin and Japanese), veganism and Gongfu stye tea.
 
